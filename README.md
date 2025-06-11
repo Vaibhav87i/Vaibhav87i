@@ -10,10 +10,12 @@
 - Actively connect with early-stage companies looking to grow their presence
 
 📫 **Let’s connect:**  
-📧 vaibhav@zexprwire.com
+📧 vaibhav@zexprwire.co  
 🐦 [Twitter](https://twitter.com/Vaibhav87i)  
 
 🧠 **Fun Fact:**  
 Though GitHub is mostly for developers, I use this space to connect with startups, explore what they’re building, and offer media solutions that help them stand out.
+
+
 
 
