@@ -10,7 +10,7 @@
 - Actively connect with early-stage companies looking to grow their presence
 
 📫 **Let’s connect:**  
-📧 vaibhav@zexprwire.co  
+📧 vaibhav@zexprwire.com  
 🐦 [Twitter](https://twitter.com/Vaibhav87i)  
 
 🧠 **Fun Fact:**  
