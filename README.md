@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Vaibhav Tripathi
+# 👋 Hi, I am Vaibhav
 
 🚀 I work with startups, fintech brands, and Web3 innovators to boost their visibility through high-impact media placements.
 
